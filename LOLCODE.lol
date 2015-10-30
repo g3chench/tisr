@@ -1,0 +1,10 @@
+BTW This is an actual LOLCODE program. Enjoy.
+HAI
+
+HOW DUZ I HACK
+  FOUND YR "AYY LMAO"
+IF U SAY SO
+
+VISIBLE MAIKITTEH
+
+KTHXBYE
